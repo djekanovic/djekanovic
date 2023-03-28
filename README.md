@@ -8,7 +8,7 @@
 
 ⚐ Based in Serbia
 
-ϟ Currently Working at HUEMOR Creating Awesome Websites
+ϟ Last Position: HUEMOR Creating Awesome Websites
 
 ϟ Recently been developing some custom applications
 
